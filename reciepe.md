@@ -1,0 +1,1 @@
+take the oreo and milk mix in the grinder and it is ready
